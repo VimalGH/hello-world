@@ -1,2 +1,2 @@
 # hello-world
-to share ideas and resources with others
+Hi, I wish this world will have always peace and prosperity
